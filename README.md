@@ -50,6 +50,12 @@ For a complete list, click the following sortable link below:
 </div>
 
 ---
+
+## Related Canada resource 🇨🇦
+
+- [Hanzilla Jobs — Canada finance & accounting new-grad jobs](https://jobs.hanzilla.co/finance/) — free daily-updated Canadian student/recent-grad job board for finance, accounting, business, internships/co-ops, new-grad, junior, and entry-level roles.
+
+---
 ## Daily Job List  🌐 🧭 🏆
 
 
